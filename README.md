@@ -1,0 +1,1 @@
+# algoritmo-da-categoria-Criacional
